@@ -1,3 +1,3 @@
 Eu estava na praça do Leão quando...
-eu tropecei e caí na barraquinha de revista
+eu tropecei e caí na barraquinha de revista e  acabei comprando uma do RBD
 então olhei para cima e avistei algo surpreendente, meu espanto foi tanto que fiquei sem palavras
