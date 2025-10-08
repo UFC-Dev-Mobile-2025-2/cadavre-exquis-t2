@@ -14,3 +14,4 @@ o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlo
 "quem é arceus", perguntei "e o que você fez que deveria ter feito???"
 "quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
 E o Michael Jackson continuava dançando o passinho lá tranquilão
+então me econtrei perdido com a certeza que não sabia de nada
