@@ -9,4 +9,5 @@ contudo a história ainda não havia acabado, ele trouxe o esperado...
 
 Arceus desceu das nuvens
 e fez tudo o que deveria
-"quem é arceus", perguntei "e o que você fez que deveria ter feito???"
+"quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
+E o Michael Jackson continuava dançando o passinho lá tranquilão
