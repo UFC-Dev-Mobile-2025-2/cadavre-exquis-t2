@@ -13,9 +13,9 @@ e fez tudo o que deveria
 quem é arceus?
 o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlon pula de um banquinho perto de onde os papudin tavam degustando a pitu
 
-"quem é Arceus?", perguntei "e o que você fez que deveria ter feito???"
+
 
 E o Michael Jackson continuava dançando o passinho lá tranquilão e ele simplesmente morreu de tanto dançar. Mas não se preocupe, ele ressuscitou cinco segundos depois, dizendo: "This is it!"
 
-De repente, percebi que estava sonhando, e nada mais precisava fazer sentido. Então, decidi tomar um remédio, mas percebi que era alucinojeno
-
+De repente, percebi que estava sonhando, e nada mais precisava fazer sentido. Então, decidi
+Então eles entraram numa competição de passinho frenética, onde competiam para ver quem tinha mais molejo. o hino nacional tocava de fundo, e
