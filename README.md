@@ -1,15 +1,7 @@
-<<<<<<< HEAD
-Eu estava na praça do Leão quando ele se assumiu torcedor do Ceará
-
-Eu estava na praça do Leão quando...
-eu tropecei e caí na barraquinha de revista
-Arceus desceu das nuvens
-=======
 Eu estava na praça do Leão quando... eu tropecei e caí na barraquinha de revista e acabei comprando uma do RBD então olhei para cima e avistei algo surpreendente, meu espanto foi tanto que fiquei sem palavras. 
-![Gif](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fgato-asombrado-gif-22677074&psig=AOvVaw2R5CkBzep7qZ4iNQB92Uv2&ust=1760017098886000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCLCK5uDclJADFQAAAAAdAAAAABAJ)
+![Gif](https://usagif.com/pt/emocoes-de-medo-horror-em-gifs/?srsltid=AfmBOop7SmOr6-1PbAvMQmR42c-__SQgKFzv2b2w-nzCQn-n2jwAU7dv)
 Então a matilha de cachorros começou a latir para mim enquanto o michael jackson lançava o passinho, brabo.
 Eu ri bastante apesar de estar com medo do Michael ter surgido dos mortos.
 
 
 Arceus desceu das nuvens
->>>>>>> 2d7ca0c7cd439ca4c4a52982760cf73f131f1f72
