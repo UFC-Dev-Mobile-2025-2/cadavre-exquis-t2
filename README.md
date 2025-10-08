@@ -120,3 +120,5 @@ então olhei para cima e avistei algo surpreendente, meu espanto foi tanto que f
 eu tropecei e caí na barraquinha de revista
 Comecei a correr desesperadamente sem parar igual uma louca
 Entao veio o vazio existencial...
+
+finalmente ele venceu.
