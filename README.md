@@ -66,5 +66,6 @@ aaa
 <img src="https://i.pinimg.com/736x/c5/86/67/c58667278ea64d93ec7e297fbf533648.jpg" alt="home" width="300" height="200">
 </br>
 
+Não cometo erros, sou mais forte, mais esperto, e sou melhor. Eu sou o melhor!
 
 Enquanto isso, Michael Jackson se encontrava em um vazio inexplicável olhando no fundo dos meus olhos, como se olhasse dentro de minha alma... E começou a lançar o passinho novamente e todo mundo foi ao delírio inclusive Arceus 
