@@ -6,6 +6,7 @@ Então a matilha de cachorros começou a latir para mim...
 e eu sai correndo morrendo de medo
 Então a matilha de cachorros começou a latir para mim enquanto o michael jackson lançava o passinho, brabo.
 Eu ri bastante apesar de estar com medo do Michael ter surgido dos mortos.
+Seu chico dono da venda grita "Ei, rasgou as revista tudo aqui. Vai ter que pagar!"
 contudo a história ainda não havia acabado, ele trouxe o esperado...
 
 
@@ -64,3 +65,5 @@ aaa
 
 <img src="https://i.pinimg.com/736x/c5/86/67/c58667278ea64d93ec7e297fbf533648.jpg" alt="home" width="300" height="200">
 </br>
+
+"Não cometo erros, sou mais forte, mais esperto, e sou melhor. Eu sou o melhor!"
