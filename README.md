@@ -15,25 +15,11 @@ Arceus desceu das nuvens
 e fez tudo o que deveria
 
 quem é arceus
-<<<<<<< HEAD
->>>>>>> 2bc6833dcdb2aa8ac0c7cfcfd47b77d83b38f9cc
-=======
-=======
-
-
-"quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
->>>>>>> ef9bc6e (atu)
 E o Michael Jackson continuava dançando o passinho lá tranquilão
-
 
 quem é arceus?
 o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlon pula de um...
 
-
-"quem é arceus", perguntei "e o que você fez que deveria ter feito???"
-
-
-"quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
 
 
 
