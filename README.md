@@ -141,3 +141,8 @@ Comecei a correr desesperadamente sem parar
 
 
 >>>>>>> 9d576922edf0c2df247deec1097f9cb0f4648951
+
+
+
+
+Entao veio o vazio existencial...
