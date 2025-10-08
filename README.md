@@ -8,4 +8,4 @@ contudo a história ainda não havia acabado, ele trouxe o esperado...
 
 Arceus desceu das nuvens
 e fez tudo o que deveria
-quem é arceus
+"quem é arceus", perguntei "e o que você fez que deveria ter feito???"
