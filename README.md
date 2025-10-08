@@ -22,7 +22,7 @@ De repente, percebi que estava sonhando, e nada mais precisava fazer sentido. En
 correr para a porta
 
 
-Então eles entraram numa competição de passinho frenética, onde competiam para ver quem tinha mais molejo. o hino nacional tocava de fundo, e
+Então eles entraram numa competição de passinho frenética, onde competiam para ver quem tinha mais molejo. o hino nacional tocava de fundo
 "E NESSA LOUCURAAAAAAAAAAAA🎵"
 <<<<<<< HEAD
 
