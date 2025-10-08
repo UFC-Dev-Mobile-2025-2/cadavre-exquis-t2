@@ -15,25 +15,11 @@ Arceus desceu das nuvens
 e fez tudo o que deveria
 
 quem é arceus
-<<<<<<< HEAD
->>>>>>> 2bc6833dcdb2aa8ac0c7cfcfd47b77d83b38f9cc
-=======
-=======
-
-
-"quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
->>>>>>> ef9bc6e (atu)
 E o Michael Jackson continuava dançando o passinho lá tranquilão
-
 
 quem é arceus?
 o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlon pula de um...
 
-
-"quem é arceus", perguntei "e o que você fez que deveria ter feito???"
-
-
-"quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
 
 
 
@@ -78,7 +64,11 @@ aaa
 </br>
 
 <<<<<<< HEAD
+Não cometo erros, sou mais forte, mais esperto, e sou melhor. Eu sou o melhor!
+=======
+<<<<<<< HEAD
 Arceus perdeu, e parecia prestes a destruir tudo!
+>>>>>>> 7174f432694a74b7f7307502366bcf70fe09e2fa
 
 "Não cometo erros, sou mais forte, mais esperto, e sou melhor. Eu sou o melhor!"
 =======
@@ -87,11 +77,15 @@ Quando percebi, no fundo estava Michael Jackson me encarando fixamente
 
 AAaAAAAAaa
 
+fim da historia.
+
 
 
 
 
 acabaaa pela amor de Deus.
+
+Eu não aguento maaaaais
 
 
 
@@ -127,14 +121,7 @@ então olhei para cima e avistei algo surpreendente, meu espanto foi tanto que f
 
 eu tropecei e caí na barraquinha de revista
 
-Comecei a correr desesperadamente sem parar
-
-
-
-
-
-
-
+Comecei a correr desesperadamente sem parar igual uma louca
 
 
 
