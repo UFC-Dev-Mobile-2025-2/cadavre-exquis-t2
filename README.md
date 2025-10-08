@@ -35,8 +35,9 @@ De repente, percebi que estava sonhando, e nada mais precisava fazer sentido. En
 correr para a porta
 
 
-Então eles entraram numa competição de passinho frenética, onde competiam para ver quem tinha mais molejo. o hino nacional tocava de fundo, e
-"E NESSA LOUCURAAAAAAAAAAAA"
+Então eles entraram numa competição de passinho frenética, onde competiam para ver quem tinha mais molejo. o hino nacional tocava de fundo, 
+
+"E NESSA LOUCURAAAAAAAAAAAA🎵🎵"
 
 aaa
 >>>>>>> fb3c26479532864f2cd2c33ef621778456df79d0
