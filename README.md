@@ -17,12 +17,12 @@ o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlo
 "quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
 E o Michael Jackson continuava dançando o passinho lá tranquilão
 então me econtrei perdido com a certeza que não sabia de nada
-=======
+
 o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlon pula de um banquinho perto de onde os papudin tavam degustando a pitu
 
 "quem é Arceus?", perguntei "e o que você fez que deveria ter feito???"
 
 E o Michael Jackson continuava dançando o passinho lá tranquilão
 e morreu
->>>>>>> 9b2693cd6ad11dbeda8586314fafe3f3fc90ff62
+
 então me econntrei perdido com a certeza de que não sabia de nada
