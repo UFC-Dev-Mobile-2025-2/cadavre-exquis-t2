@@ -18,4 +18,14 @@ o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlo
 E o Michael Jackson continuava dançando o passinho lá tranquilão e ele simplesmente morreu de tanto dançar. Mas não se preocupe, ele ressuscitou cinco segundos depois, dizendo: "This is it!"
 
 De repente, percebi que estava sonhando, e nada mais precisava fazer sentido. Então, decidi
-Então eles entraram numa competição de passinho frenética, onde competiam para ver quem tinha mais molejo. o hino nacional tocava de fundo, e
+
+correr para a porta
+
+
+Então eles entraram numa competição de passinho frenética, onde competiam para ver quem tinha mais molejo. o hino nacional tocava de fundo
+"E NESSA LOUCURAAAAAAAAAAAA🎵"
+<<<<<<< HEAD
+
+=======
+
+>>>>>>> 292a23a99e389b9f539613d6033ce1409b5b9980
