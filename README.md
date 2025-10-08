@@ -29,6 +29,7 @@ então me econntrei perdido com a certeza de que não sabia de nada
 =======
 
 E o Michael Jackson continuava dançando o passinho lá tranquilão e ele simplesmente morreu de tanto dançar. Mas não se preocupe, ele ressuscitou cinco segundos depois, dizendo: "This is it!"
+jamais será como antes, michael. Retorne para sua terra.
 
 De repente, percebi que estava sonhando, e nada mais precisava fazer sentido. Então, decidi
 
