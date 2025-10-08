@@ -178,3 +178,5 @@ Comecei a correr desesperadamente sem parar igual uma louca
 
 
 Entao veio o vazio existencial...
+
+finalmente ele venceu.
