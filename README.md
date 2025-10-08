@@ -124,3 +124,5 @@ Entao veio o vazio existencial...
 finalmente ele venceu.
 
 tentando 
+
+E final feliz para sempre.
