@@ -9,24 +9,18 @@ contudo a história ainda não havia acabado, ele trouxe o esperado...
 
 
 Arceus desceu das nuvens
-e fez tudo o que deveria
-quem é arceus?
-<<<<<<< HEAD
-o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlon pula de um...
-"quem é arceus", perguntei "e o que você fez que deveria ter feito???"
+
+
 "quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
-E o Michael Jackson continuava dançando o passinho lá tranquilão
-então me econtrei perdido com a certeza que não sabia de nada
+
 
 o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlon pula de um banquinho perto de onde os papudin tavam degustando a pitu
 
 
-<<<<<<< HEAD
 E o Michael Jackson continuava dançando o passinho lá tranquilão
 e morreu
 
 então me econntrei perdido com a certeza de que não sabia de nada
-=======
 
 E o Michael Jackson continuava dançando o passinho lá tranquilão e ele simplesmente morreu de tanto dançar. Mas não se preocupe, ele ressuscitou cinco segundos depois, dizendo: "This is it!"
 jamais será como antes, michael. Retorne para sua terra.
@@ -41,4 +35,7 @@ Então eles entraram numa competição de passinho frenética, onde competiam pa
 "E NESSA LOUCURAAAAAAAAAAAA🎵🎵"
 
 aaa
->>>>>>> fb3c26479532864f2cd2c33ef621778456df79d0
+
+Quando percebi, no fundo estava Michael Jackson me encarando fixamente
+
+AAaAAAAAaa
