@@ -11,4 +11,3 @@ Eu ri bastante apesar de estar com medo do Michael ter surgido dos mortos.
 
 
 Arceus desceu das nuvens
->>>>>>> 2d7ca0c7cd439ca4c4a52982760cf73f131f1f72
