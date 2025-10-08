@@ -15,10 +15,7 @@ o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlo
 
 
 
-E o Michael Jackson continuava dançando o passinho lá tranquilão e morreu.
+E o Michael Jackson continuava dançando o passinho lá tranquilão e ele simplesmente morreu de tanto dançar. Mas não se preocupe, ele ressuscitou cinco segundos depois, dizendo: "This is it!"
 
-De repente percebi que estava sonhando, e nada mais precisava fazer sentido, então só decidi dançar com o Michael Jackson até que
-
-
-Arceus começou a dançar com michael que estava morto e reviveu mais uma vez
+De repente, percebi que estava sonhando, e nada mais precisava fazer sentido. Então, decidi
 Então eles entraram numa competição de passinho frenética, onde competiam para ver quem tinha mais molejo. o hino nacional tocava de fundo, e
