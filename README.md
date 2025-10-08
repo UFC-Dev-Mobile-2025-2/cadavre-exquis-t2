@@ -36,6 +36,4 @@ Então eles entraram numa competição de passinho frenética, onde competiam pa
 
 aaa
 
-Quando percebi, no fundo estava Michael Jackson me encarando fixamente
-
-AAaAAAAAaa
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaa  eu não aguento mais
