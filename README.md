@@ -16,5 +16,6 @@ o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlo
 "quem é Arceus?", perguntei "e o que você fez que deveria ter feito???"
 
 E o Michael Jackson continuava dançando o passinho lá tranquilão
-e morreu
+e morreu.
+</br>
 De repente percebi que estava sonhando, e nada mais precisava fazer sentido, então só decidi dançar com o Michael Jackson até que
