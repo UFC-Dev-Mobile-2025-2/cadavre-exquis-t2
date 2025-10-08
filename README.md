@@ -45,4 +45,6 @@ aaa
 <img src="https://i.pinimg.com/736x/c5/86/67/c58667278ea64d93ec7e297fbf533648.jpg" alt="home" width="300" height="200">
 </br>
 
+Arceus perdeu, e parecia prestes a destruir tudo!
+
 "Não cometo erros, sou mais forte, mais esperto, e sou melhor. Eu sou o melhor!"
