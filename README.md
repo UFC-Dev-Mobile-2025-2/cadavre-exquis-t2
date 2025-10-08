@@ -5,6 +5,7 @@ Então a matilha de cachorros começou a latir para mim...
 e eu sai correndo morrendo de medo
 Então a matilha de cachorros começou a latir para mim enquanto o michael jackson lançava o passinho, brabo.
 Eu ri bastante apesar de estar com medo do Michael ter surgido dos mortos.
+Seu chico dono da venda grita "Ei, rasgou as revista tudo aqui. Vai ter que pagar!"
 contudo a história ainda não havia acabado, ele trouxe o esperado...
 
 
