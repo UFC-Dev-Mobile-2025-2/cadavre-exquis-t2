@@ -19,19 +19,16 @@ e fez tudo o que deveria
 quem é arceus
 >>>>>>> 2bc6833dcdb2aa8ac0c7cfcfd47b77d83b38f9cc
 =======
-"quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
 E o Michael Jackson continuava dançando o passinho lá tranquilão
 >>>>>>> 7820978e84a9b50e6d75ac4ec1ccaed471bbab5b
 
 quem é arceus?
 <<<<<<< HEAD
 o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlon pula de um...
-"quem é arceus", perguntei "e o que você fez que deveria ter feito???"
 =======
 
 
 >>>>>>> 046aaa55f031d2eba0d37a2eaac28a31203eb042
-"quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
 
 
 o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlon pula de um banquinho perto de onde os papudin tavam degustando a pitu
