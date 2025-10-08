@@ -152,6 +152,7 @@ então olhei para cima e avistei algo surpreendente, meu espanto foi tanto que f
 
 eu tropecei e caí na barraquinha de revista
 
+<<<<<<< HEAD
 Comecei a correr desesperadamente sem parar
 <<<<<<< HEAD
 =======
@@ -162,6 +163,9 @@ Comecei a correr desesperadamente sem parar
 
 
 
+=======
+Comecei a correr desesperadamente sem parar igual uma louca
+>>>>>>> fcc5159c37223b189e22813cbf4b70d856a44825
 
 
 
