@@ -23,7 +23,7 @@ correr para a porta
 
 
 Então eles entraram numa competição de passinho frenética, onde competiam para ver quem tinha mais molejo. o hino nacional tocava de fundo, e
-"E NESSA LOUCURAAAAAAAAAAAA"
+"E NESSA LOUCURAAAAAAAAAAAA🎵"
 <<<<<<< HEAD
 
 =======
