@@ -65,3 +65,4 @@ aaa
 
 
 Enquanto isso, Michael Jackson se encontrava em um vazio inexplicável olhando no fundo dos meus olhos, como se olhasse dentro de minha alma... E começou a lançar o passinho novamente e todo mundo foi ao delírio inclusive Arceus 
+ok, e agora?
