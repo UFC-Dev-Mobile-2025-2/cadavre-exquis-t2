@@ -11,5 +11,10 @@ Arceus desceu das nuvens
 <<<<<<< HEAD
 =======
 e fez tudo o que deveria
+<<<<<<< HEAD
 quem é arceus
 >>>>>>> 2bc6833dcdb2aa8ac0c7cfcfd47b77d83b38f9cc
+=======
+"quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
+E o Michael Jackson continuava dançando o passinho lá tranquilão
+>>>>>>> 7820978e84a9b50e6d75ac4ec1ccaed471bbab5b
