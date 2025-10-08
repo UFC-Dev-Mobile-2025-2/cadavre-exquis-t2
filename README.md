@@ -172,4 +172,9 @@ Comecei a correr desesperadamente sem parar igual uma louca
 
 
 >>>>>>> 9d576922edf0c2df247deec1097f9cb0f4648951
->>>>>>> c166fd714467970eae13a55d2ddbae0c3c359908
+
+
+
+
+
+Entao veio o vazio existencial...
