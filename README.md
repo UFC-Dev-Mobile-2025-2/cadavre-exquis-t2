@@ -1,3 +1,4 @@
+
 Eu estava na praça do Leão quando... eu tropecei e caí na barraquinha de revista e acabei comprando uma do RBD então olhei para cima e avistei algo surpreendente, meu espanto foi tanto que fiquei sem palavras. 
 <img src="https://media1.tenor.com/m/KLKh-Cl5O88AAAAd/gato-asombrado.gif" alt="Gatinho" width="300" height="200">
 </br>
@@ -9,6 +10,7 @@ contudo a história ainda não havia acabado, ele trouxe o esperado...
 
 
 Arceus desceu das nuvens
+<<<<<<< HEAD
 <<<<<<< HEAD
 =======
 e fez tudo o que deveria
@@ -24,9 +26,12 @@ quem é arceus?
 <<<<<<< HEAD
 o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlon pula de um...
 "quem é arceus", perguntei "e o que você fez que deveria ter feito???"
+=======
+
+
+>>>>>>> 046aaa55f031d2eba0d37a2eaac28a31203eb042
 "quem é arceus?", perguntei "e o que você fez que deveria ter feito???"
-E o Michael Jackson continuava dançando o passinho lá tranquilão
-então me econtrei perdido com a certeza que não sabia de nada
+
 
 o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlon pula de um banquinho perto de onde os papudin tavam degustando a pitu
 
@@ -37,6 +42,7 @@ e morreu
 então me econntrei perdido com a certeza de que não sabia de nada
 
 E o Michael Jackson continuava dançando o passinho lá tranquilão e ele simplesmente morreu de tanto dançar. Mas não se preocupe, ele ressuscitou cinco segundos depois, dizendo: "This is it!"
+jamais será como antes, michael. Retorne para sua terra.
 
 De repente, percebi que estava sonhando, e nada mais precisava fazer sentido. Então, decidi
 
@@ -49,3 +55,12 @@ Então eles entraram numa competição de passinho frenética, onde competiam pa
 
 aaa
 
+
+Então eles entraram numa competição de passinho frenética, onde competiam para ver quem tinha mais molejo. o hino nacional tocava de fundo, 
+
+"E NESSA LOUCURAAAAAAAAAAAA🎵🎵"
+
+aaa
+
+<img src="https://i.pinimg.com/736x/c5/86/67/c58667278ea64d93ec7e297fbf533648.jpg" alt="home" width="300" height="200">
+</br>
