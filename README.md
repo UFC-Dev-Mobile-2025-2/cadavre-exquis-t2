@@ -9,4 +9,6 @@ contudo a história ainda não havia acabado, ele trouxe o esperado...
 
 Arceus desceu das nuvens
 e fez tudo o que deveria
+quem é arceus?
+o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlon pula de um...
 "quem é arceus", perguntei "e o que você fez que deveria ter feito???"
