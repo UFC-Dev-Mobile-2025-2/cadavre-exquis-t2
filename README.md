@@ -17,3 +17,4 @@ o deus todo poderoso pokemon, o céu agora brilha com sua chegada enquanto marlo
 
 E o Michael Jackson continuava dançando o passinho lá tranquilão
 e morreu
+De repente percebi que estava sonhando, e nada mais precisava fazer sentido, então só decidi dançar com o Michael Jackson até que
