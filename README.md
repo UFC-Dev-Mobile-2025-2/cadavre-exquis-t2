@@ -5,3 +5,4 @@ Eu ri bastante apesar de estar com medo do Michael ter surgido dos mortos.
 
 
 Arceus desceu das nuvens
+e fez tudo o que deveria
