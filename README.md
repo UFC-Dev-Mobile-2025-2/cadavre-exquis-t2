@@ -18,7 +18,6 @@ E o Michael Jackson continuava dançando o passinho lá tranquilão
 
 =======
 
-"quem é Arceus?", perguntei "e o que você fez que deveria ter feito???"
 
 <<<<<<< HEAD
 E o Michael Jackson continuava dançando o passinho lá tranquilão. 
@@ -41,4 +40,5 @@ De repente percebi que estava sonhando, e nada mais precisava fazer sentido, ent
 
 
 Arceus começou a dançar com michael 
+e começaram uma competição frenética de passinho, onde arceus e michael jackson competiam para ver quem tinha mais molejo e quem conseguia fazer mais rápido. o hino nacional tocava de fundo.
 >>>>>>> 3cb617d0c0a18f2366026439a71bd8ad342116e0
