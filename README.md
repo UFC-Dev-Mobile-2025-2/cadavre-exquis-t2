@@ -19,3 +19,4 @@ E o Michael Jackson continuava dançando o passinho lá tranquilão e ele simple
 
 De repente, percebi que estava sonhando, e nada mais precisava fazer sentido. Então, decidi
 Então eles entraram numa competição de passinho frenética, onde competiam para ver quem tinha mais molejo. o hino nacional tocava de fundo, e
+"E NESSA LOUCURAAAAAAAAAAAA"
