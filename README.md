@@ -109,33 +109,10 @@ Quando percebi, no fundo estava Michael Jackson me encarando fixamente
 
 AAaAAAAAaa
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 E o Michael Jackson continuava dançando o passinho lá tranquilão
 e morreu.
 </br>
 De repente percebi que estava sonhando, e nada mais precisava fazer sentido, então só decidi dançar com o Michael Jackson até que
-
 
 Eu estava na praça do Leão quando...
 
@@ -145,16 +122,3 @@ então olhei para cima e avistei algo surpreendente, meu espanto foi tanto que f
 eu tropecei e caí na barraquinha de revista
 
 Comecei a correr desesperadamente sem parar
-
-
-
-
-
-
-
-
-
-
-
->>>>>>> 9d576922edf0c2df247deec1097f9cb0f4648951
-
