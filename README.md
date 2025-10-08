@@ -20,6 +20,10 @@ E o Michael Jackson continuava dançando o passinho lá tranquilão
 
 "quem é Arceus?", perguntei "e o que você fez que deveria ter feito???"
 
-E o Michael Jackson continuava dançando o passinho lá tranquilão
-Arceus começou a dançar com michael jakison
+E o Michael Jackson continuava dançando o passinho lá tranquilão. Arceus começou a dançar com michael jakison
+<<<<<<< HEAD
+
 >>>>>>> 2be994b2d4fa36017398cd55e0a39c85c03cf778
+=======
+e morreu
+>>>>>>> 9b2693cd6ad11dbeda8586314fafe3f3fc90ff62
