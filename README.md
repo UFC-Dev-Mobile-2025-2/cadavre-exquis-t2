@@ -64,7 +64,11 @@ aaa
 </br>
 
 <<<<<<< HEAD
+Não cometo erros, sou mais forte, mais esperto, e sou melhor. Eu sou o melhor!
+=======
+<<<<<<< HEAD
 Arceus perdeu, e parecia prestes a destruir tudo!
+>>>>>>> 7174f432694a74b7f7307502366bcf70fe09e2fa
 
 "Não cometo erros, sou mais forte, mais esperto, e sou melhor. Eu sou o melhor!"
 =======
@@ -78,6 +82,8 @@ AAaAAAAAaa
 
 
 acabaaa pela amor de Deus.
+
+Eu não aguento maaaaais
 
 
 
